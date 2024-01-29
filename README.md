@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @clowneatingcode505
 - 👀 I’m interested in art, anime, music, and mthology
 - 🌱 I’m currently learning how to 3D model
-- 💞️ I’m looking to collaborate on anything that needs art or story lines
+- 💞️ I’m looking to collaborate on horror games
 - 📫 How to reach me disord: yourtvguygirlfriend
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: femboy lmao
